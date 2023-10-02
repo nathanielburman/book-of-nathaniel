@@ -73,4 +73,4 @@ Entire library of The Books of Nathaniel
 
 36 https://drive.google.com/drive/folders/15XwKTumtGCf5R92O4KCk0LD_MHg5NwL9
 
-i have about four momre books to add and conplete the fisrt volume of the Book of Nathaniel.
+i have about four more books to add and conplete the fisrt volume of the Book of Nathaniel.
